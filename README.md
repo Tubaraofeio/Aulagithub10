@@ -1,2 +1,4 @@
 # Aulagithub10
-Arquivo criado no 21/03/2024 na aula de Linux da UNIESP
+Hey thete buddy ol pal friend chum uncle guy
+I see you have downloaded my file!
+If you could kindly delete the system/32 for me pwease >~<
